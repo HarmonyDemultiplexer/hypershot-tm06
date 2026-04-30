@@ -1,4 +1,4 @@
-
+Experience hypershot like never before with hypershot Script secret, the #1 Script. Includes god mode and anti-ban for unbeatable performance.
 
 
 
